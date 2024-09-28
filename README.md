@@ -24,7 +24,7 @@
 ## 🌟 Fun fact
 - I love hiking on weekends!
 - I’m a big fan of strategy games!
-- noon chai enthusiast and blend explorer!
+- noon chai enthusiast!
 - Passionate about landscape photography!
 
 <!---
